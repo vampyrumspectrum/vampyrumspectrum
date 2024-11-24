@@ -12,6 +12,6 @@ just to c<ins>larify</ins> -- dray n i do **NOT** ship ~neuvifuri~ *AT ALL*.
 
 ***BLEEEEGGHHHHGGHG !!!***
 
-<ins>familial</ins> dynamic for the win !! :3
+*familial* dynamic for the win !! :3
 
 </div>
