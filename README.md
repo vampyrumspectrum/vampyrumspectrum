@@ -1,6 +1,6 @@
 <div align="center">
  
- ![](https://komarev.com/ghpvc/?username=vampyrumspectrum&abbreviated=true&label=FANS&color=626C99)
+ ![](https://komarev.com/ghpvc/?username=vampyrumspectrum&abbreviated=true&label=FANS&color=66F6FE)
 
 <picture>
  <img  src=link>
