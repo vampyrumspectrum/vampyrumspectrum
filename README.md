@@ -6,18 +6,22 @@
 
 ![](https://i.postimg.cc/dVFn2FXZ/chisumi.png)
 
-❛  ***Touch me with a kiss , touch me with a kiss . .***
+❛  ***I could tell that something had changed , how you looked at me then . .***
 
-***Tell me it's love , tell me it's real .***
+***Chinatsu , come right back . . I've been waiting for you ,***
 
-***Touch me with a kiss , feel me on your lips . .***
+***To slip back in bed when you light the candle . .***
 
-***'Cause this is where I want to be ,***
+**♡**
 
-***Where it's so sweet and heavenly .***
+***Think I like you best when you're just with me and no one else . .***
 
-***I'm giving you all my , giving you all my . .***
+**♡**
 
-***Giving you all my love .*** ♡
+***I'm kissing you , lying in my room , holding you until you fall asleep . .***
+
+***And it's just as good as I knew it would be .***
+
+***Stay with me , I don't want you to leave . .*** ❜
 
 </div>
