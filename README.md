@@ -1,15 +1,23 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=vampyrumspectrum&abbreviated=true&label=MY_PHOTOS&color=693012)
+![](https://komarev.com/ghpvc/?username=vampyrumspectrum&abbreviated=true&label=OCEAN_PHOTOS&color=A78674)
 </br>
 </br>
 
-![made by @mochilly on tumblr](https://i.postimg.cc/zXdyHJBt/skylar-graphic.png)
+![](https://i.postimg.cc/dVFn2FXZ/chisumi.png)
 
-❛  ***Honey , what'd you take ?***
+❛  ***Touch me with a kiss , touch me with a kiss . .***
 
-***What'd you take ? Honey , look at me . .***
+***Tell me it's love , tell me it's real . .***
 
-***Tell me what you took , what'd you take ?***
+***Touch me with a kiss , feel me on your lips . .***
+
+***'Cause this is where I want to be . .***
+
+***Where it's so sweet and heavenly . .***
+
+***I'm giving you all my , giving you all my . .***
+
+***Giving you all my love .*** ♡
 
 </div>
