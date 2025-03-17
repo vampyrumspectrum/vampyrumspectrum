@@ -8,7 +8,7 @@
 
 ❛  ***I could tell that something had changed , how you looked at me then . .***
 
-***Chinatsu , come right back , I've been waiting for you . .***
+***Chinatsu , come right back . . I've been waiting for you ,***
 
 ***To slip back in bed , when you light the candle . .***
 
