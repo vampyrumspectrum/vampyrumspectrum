@@ -8,13 +8,13 @@
 
 ❛  ***Touch me with a kiss , touch me with a kiss . .***
 
-***Tell me it's love , tell me it's real . .***
+***Tell me it's love , tell me it's real .***
 
 ***Touch me with a kiss , feel me on your lips . .***
 
-***'Cause this is where I want to be . .***
+***'Cause this is where I want to be ,***
 
-***Where it's so sweet and heavenly . .***
+***Where it's so sweet and heavenly .***
 
 ***I'm giving you all my , giving you all my . .***
 
