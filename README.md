@@ -1,11 +1,11 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=vampyrumspectrum&abbreviated=true&label=MY_CHILDREN&color=336F71)
+![](https://komarev.com/ghpvc/?username=vampyrumspectrum&abbreviated=true&label=MY_CHILDREN&color=0A0A0A)
 </br>
 </br>
 
 ![](https://i.postimg.cc/kgX3jQSw/neuvi-banner.png)
-AC: @Senta_lia on Twitter
+AC : @Senta_lia on Twitter
 
 </br>
 
