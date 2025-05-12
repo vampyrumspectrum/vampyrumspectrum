@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=vampyrumspectrum&label=FEATHER_CLIPPINGS&color=680000)
+![](https://komarev.com/ghpvc/?username=vampyrumspectrum&label=Feather_clippings&color=680000)
 </br>
 </br>
 
