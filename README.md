@@ -60,7 +60,11 @@
 
 ***I am the final dawn , I am the flood .***
 
-***What was missing from the scriptures will be written in my blood .*** ❜
+***What was missing from the scriptures will be written in my blood .***
+
+***Dig down into the mud .***
+
+***What good is all this talk of wings when there is nothing left above ?*** ❜
 
 </br>
 
