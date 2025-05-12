@@ -1,36 +1,69 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=vampyrumspectrum&label=MY_CHILDREN&color=0A0A0A)
+![](https://komarev.com/ghpvc/?username=vampyrumspectrum&label=FEATHER_CLIPPINGS&color=970000)
 </br>
 </br>
 
-![](https://i.postimg.cc/kgX3jQSw/neuvi-banner.png)
-AC : @Senta_lia on Twitter
+![](https://i.postimg.cc/t45YpSBb/sunday.png)
 
 </br>
 
-**🦦**
+**🌘🌑🌒**
 
 </br>
 
-❛  ***Call me when they bury bodies underwater ,***
+❛  ***Will you halt this eclipse in me ?***
 
-***It's blue light over murder for me . .***
+***Will you halt this eclipse in me ?***
 
-***Crumble like a temple built from future daughters ,***
+***Will you halt this eclipse in me ?***
 
-***To wasteland when the oceans recede .***
+***I've got eyelids heavy enough to break diamonds ,***
 
-**🌊**
+***You pray for sound and I pray for silence .***
 
-***Drag me under again , deep into your love . .***
+***Damn right , faithless . I can't deny ,***
 
-***Hold me beneath the surface ,***
+***You'll find me with half a mind to get violent .***
 
-***( And I know the angels tonight are as lost for words )***
+***You know it isn't over 'til I say it's over ,***
 
-***Deep into your love .***
+***No more little angels sitting on my shoulders .***
 
-***( As I am to merely behold you as we lie down together )*** ❜
+**🌓**
+
+***Am I walking with gods or merely stumbling forth ?***
+
+***Until there's fire at the gates , until I fall to the floor ?***
+
+***You know I live by the feather and die by the sword ,***
+
+***And I will sunder the earth only to burn the reward .***
+
+***Even in this garden of gardens , I am the god of the gaps ,***
+
+***I am the demon of Sodom , I am the blood of an angel .***
+
+***The fate of the fallen , nobody knows where I came from .***
+
+***Even I have forgotten . How could I already lose my way like this ?***
+
+**🌗**
+
+***Come now , swing wide those gates ,***
+
+***'Cause I have paid my penance kindly well in time for judgement day .***
+
+***Somehow , I knew my fate .***
+
+***Turns out the gods we thought were dying were just sharpening their blades .***
+
+***I am the final dawn , I am the flood .***
+
+***What was missing from the scriptures will be written in my blood .*** ❜
+
+</br>
+
+**🌔🌕🌖**
 
 </div>
