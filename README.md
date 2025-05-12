@@ -64,7 +64,7 @@
 
 ***Dig down into the mud .***
 
-***What good is all this talk of wings when there is nothing left above ?*** ❜
+***What good is all this talk of wings when there is nothing left above ?***  ❜
 
 </br>
 
