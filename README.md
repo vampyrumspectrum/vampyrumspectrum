@@ -58,13 +58,17 @@
 
 ***Turns out the gods we thought were dying were just sharpening their blades .***
 
+***Have you been waiting long , for me ?***
+
 ***I am the final dawn , I am the flood .***
 
 ***What was missing from the scriptures will be written in my blood .***
 
 ***Dig down into the mud .***
 
-***What good is all this talk of wings when there is nothing left above ?***  ❜
+***What good is all this talk of wings when there is nothing left above ?***
+
+***Have you been waiting long , for me ?***   ❜
 
 </br>
 
