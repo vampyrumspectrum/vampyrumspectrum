@@ -4,16 +4,10 @@
 </br>
 </br>
 
-![](https://i.postimg.cc/)
+![](https://files.catbox.moe/gkgsvx.png)
 
 </br>
 
-**🐈‍⬛️**
-
-</br>
-
-❛  ***Revamping . . .***
-
-***txt txt txt***   ❜
+**🐈‍⬛️**　　 ̣̣ ۟ ིྀ ͝ 　　Whole house mad !!　　་།
 
 </div>
