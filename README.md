@@ -22,4 +22,6 @@
 
 [Pt-Fashion](https://github.com/pt-fashion) — Pony Town's Columbina 🕊
 
+[Pt-Friendships](https://github.com/pt-friendships) — Pony Town's best twins with [@bluevxmpire](https://github.com/bluevxmpire)
+
 </div>
