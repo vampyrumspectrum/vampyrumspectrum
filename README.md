@@ -18,6 +18,8 @@
 
 👑 Titles 👑
 
-[Title-Town](https://github.com/title-town) — Pony Town's Sunday 🪽
+[Title Town](https://github.com/title-town) — Pony Town's Sunday 🪽
+
+[PT Fashion](https://github.com/pt-fashion) — Pony Town's Columbina 🕊
 
 </div>
